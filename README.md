@@ -8,7 +8,7 @@
 - 👯 I’m looking to collaborate on my project
 - 🤔 I’m looking for help with nothing, **I'm a genius**
 - 💬 Ask me about everything
-- 📫 How to reach me: insta : **@robin.glld**
+- 📫 How to reach me: 
 - 😄 Pronouns: **??**
 - ⚡ Fun fact: 
 
